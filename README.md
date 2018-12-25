@@ -13,3 +13,6 @@ Benefits:
 - constant updating by developers of mining algorithms and software
 - simple and does not require additional knowledge
 - a very useful referral program (you can do without installing the program and just get your income from referrals - suitable for those who have too old equipment and cannot independently extract)
+
+
+https://computta.com/
